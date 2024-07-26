@@ -32,6 +32,14 @@ i just really enjoy collecting :)
 ![image](https://github.com/user-attachments/assets/15ca7400-4b07-4f6f-a1f1-3a9ebe536cb9) ![image](https://github.com/user-attachments/assets/c23273ca-b5bb-4956-b0c7-7ef86b23effd) ![image](https://github.com/user-attachments/assets/476cba18-adb0-4ff5-8646-224aa2809620)
 ![image](https://github.com/user-attachments/assets/213655d0-a9b6-41f1-8a8d-339d67843280) ![image](https://github.com/user-attachments/assets/07de82c0-5a4e-4f64-b6c6-90db3c50e7d2)
 
+![image](https://github.com/user-attachments/assets/5c144472-3373-42e2-b11d-70186a4ca7f0) ![image](https://github.com/user-attachments/assets/2208199d-e3e8-4705-98a0-b014ff074261) ![image](https://github.com/user-attachments/assets/3eea6a1b-e9ce-4fb5-bab7-d0f5cd567941)
+![image](https://github.com/user-attachments/assets/561b3907-7747-4dbd-a95a-6914f1ce449c) ![image](https://github.com/user-attachments/assets/b79077e1-4878-481c-8258-083a85212e57) ![image](https://github.com/user-attachments/assets/5c986275-b3b1-4c1e-baa7-c43f34cffe9a)
+![image](https://github.com/user-attachments/assets/502c0555-ca4c-4dd0-b4ad-9b8063b64ae2) ![image](https://github.com/user-attachments/assets/dcfe17ed-5021-40a1-af5a-4062a947adc6)
+
+
+
+
+
 
 
 
