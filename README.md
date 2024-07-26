@@ -1,5 +1,6 @@
-wip
-<!--
+![image](https://github.com/user-attachments/assets/462f5f49-60a8-4184-b4bd-a07208b7b17b)
+
+
 **cauIfield/cauIfield** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
