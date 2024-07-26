@@ -1,4 +1,4 @@
-© thedanvelez 
+© thedanvelez art
 & no stamps are mine
 i just really enjoy collecting :)
 
