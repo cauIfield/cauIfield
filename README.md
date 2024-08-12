@@ -3,8 +3,9 @@
 ![image](https://github.com/user-attachments/assets/443f1083-0f13-404d-8087-1dba1465850c)
 
 <p align="center">
-  <img width="375" height="375" src="https://github.com/user-attachments/assets/599ae861-b392-4326-aee2-68c8248f3a7b">
+  <img width="554" height="198" src="https://github.com/user-attachments/assets/c3025dde-d82e-4047-902d-a2af9ebd8eff">
 </p>
+
 
 <p align="center">
   <img width="387" height="26" src="https://github.com/user-attachments/assets/34eb25f0-09c5-459b-ba4c-411b27eb766d">
