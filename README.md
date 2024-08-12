@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=cauIfield&color=yellow) 
+![](https://komarev.com/ghpvc/?username=cauIfield&color=yellow) ©FISHfish art, stamps aren't mine!!
 
 ![image](https://github.com/user-attachments/assets/b55c67bc-3d46-480d-a401-e2790c70b15c)
 
