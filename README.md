@@ -1,9 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=cauIfield&color=yellow) &nbsp; ©FISHfish art, stamps aren't mine!!
 
-![image](https://github.com/user-attachments/assets/b55c67bc-3d46-480d-a401-e2790c70b15c)
-
-&nbsp;&nbsp; ![image](https://github.com/user-attachments/assets/d1dadf94-b0ed-4f4e-804a-3fafb53ab5ef)
-
+![image](https://github.com/user-attachments/assets/443f1083-0f13-404d-8087-1dba1465850c)
 
 <p align="center">
   <img width="375" height="375" src="https://github.com/user-attachments/assets/599ae861-b392-4326-aee2-68c8248f3a7b">
