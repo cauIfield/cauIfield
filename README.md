@@ -8,6 +8,7 @@ remaking literally rn ![](https://komarev.com/ghpvc/?username=cauIfield)
 
 <p align="center">
   <img width="99" height="56" src="https://github.com/user-attachments/assets/a0e92f7f-ace0-4ec1-a891-42bdb11ab542">
+  <img width="99" height="56" src="https://github.com/user-attachments/assets/ccc86f09-8fa1-454e-a8e2-c4143dafe724">
 </p>
 
 <p align="center">
