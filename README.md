@@ -15,6 +15,8 @@
 
 &nbsp; ◝ &nbsp; &nbsp; ୨୧
 
+<p align="center">★⌣⌣  &nbsp; &nbsp; infp &nbsp; &nbsp; 。yellowjackets, LiS & TLOU >>
+
 <p align="center">
   <img width="300" height="97" src="https://github.com/user-attachments/assets/d1eaea35-4402-468a-97fe-e856717cfe43">
 </p> 
