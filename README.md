@@ -28,8 +28,6 @@
 
 <p align="center"> <img width="99" height="56" src="https://github.com/user-attachments/assets/afd708b3-59a7-4db7-acf5-73a03ab96e16" </p> <img width="99" height="56" src="https://github.com/user-attachments/assets/d1d7eecd-57c0-41fb-9183-658f2d0ba0c2" </p> <img width="99" height="56" src="https://github.com/user-attachments/assets/4a0f9782-fcba-40e1-934f-57b6ce58b228"
 
-&nbsp;
-
 ![marquee](images/svg/marquee.svg)
 
 <p align="center"> wip wip text blahblah
