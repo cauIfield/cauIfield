@@ -3,7 +3,7 @@
 ©FISHfish art, wip cause im lazy
 
 <p align="center">
-  <img width="704" height="52" src="https://github.com/user-attachments/assets/796d7241-9412-4aff-b392-6fc3633b3b5f">
+  <img width="500" height="45" src="https://github.com/user-attachments/assets/796d7241-9412-4aff-b392-6fc3633b3b5f">
 </p> 
 
 
