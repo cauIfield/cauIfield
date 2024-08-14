@@ -30,7 +30,7 @@
 
 &nbsp;
 
-<p align="center">★⌣⌣  &nbsp; &nbsp; infp &nbsp; &nbsp; 。yellowjackets, LiS & TLOU >>
+<p align="center"> wip wip text blahblah
 
 ![marquee](images/svg/marquee.svg)
 
