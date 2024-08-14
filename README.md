@@ -3,6 +3,11 @@
 ©FISHfish art, wip cause im lazy
 
 <p align="center">
+  <img width="704" height="52" src="https://github.com/user-attachments/assets/796d7241-9412-4aff-b392-6fc3633b3b5f">
+</p> 
+
+
+<p align="center">
   <img width="1000" height="320" src="https://github.com/user-attachments/assets/a05406aa-e51a-496c-ac08-295f0d9be4ab">
 </p>
 
@@ -23,9 +28,9 @@
 
 <p align="center"> <img width="99" height="56" src="https://github.com/user-attachments/assets/afd708b3-59a7-4db7-acf5-73a03ab96e16" </p> <img width="99" height="56" src="https://github.com/user-attachments/assets/d1d7eecd-57c0-41fb-9183-658f2d0ba0c2" </p> <img width="99" height="56" src="https://github.com/user-attachments/assets/4a0f9782-fcba-40e1-934f-57b6ce58b228"
 
+&nbsp;
 
-
-
+<p align="center">★⌣⌣  &nbsp; &nbsp; infp &nbsp; &nbsp; 。yellowjackets, LiS & TLOU >>
 
 ![marquee](images/svg/marquee.svg)
 
