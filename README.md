@@ -5,7 +5,7 @@ if rmking were an olypmic sport my medals would be INSANE
 ![image](https://github.com/user-attachments/assets/443f1083-0f13-404d-8087-1dba1465850c)
 
 <p align="center">
-  <img width="554" height="198" src="https://github.com/user-attachments/assets/c3025dde-d82e-4047-902d-a2af9ebd8eff">
+  <img width="554" height="198" src="https://github.com/user-attachments/assets/963b0489-3075-4d87-b7c4-5d551c1e157b">
 </p>
 
 ![marquee](images/svg/marquee.svg)
