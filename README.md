@@ -20,7 +20,8 @@ if rmking were an olypmic sport my medals would be INSANE
   <img width="99" height="56" src="https://github.com/user-attachments/assets/7d0ba6cb-724a-42e4-9a4e-86a9a6bd3ed2">
 
 
-![image](https://github.com/user-attachments/assets/71926112-bdd8-49cf-b240-0788dee978d4)
+![image](https://github.com/user-attachments/assets/49165ec4-949a-4969-adcb-57c38382a0b2)
+
 
 
 
