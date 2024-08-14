@@ -30,9 +30,9 @@
 
 &nbsp;
 
-<p align="center"> wip wip text blahblah
-
 ![marquee](images/svg/marquee.svg)
+
+<p align="center"> wip wip text blahblah
 
 <p align="center">
   <img width="300" height="97" src="https://github.com/user-attachments/assets/d1eaea35-4402-468a-97fe-e856717cfe43">
