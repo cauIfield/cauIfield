@@ -30,7 +30,7 @@
 
 ![marquee](images/svg/marquee.svg)
 
-<p align="center"> wip wip text blahblah
+<p align="center"> ermm idk what to add here give me ur funko pops rn
 
 <p align="center">
   <img width="300" height="97" src="https://github.com/user-attachments/assets/d1eaea35-4402-468a-97fe-e856717cfe43">
