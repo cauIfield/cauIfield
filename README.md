@@ -17,6 +17,8 @@
 
 <p align="center">★⌣⌣  &nbsp; &nbsp; infp &nbsp; &nbsp; 。yellowjackets, LiS & TLOU >>
 
+![marquee](images/svg/marquee.svg)
+
 <p align="center">
   <img width="300" height="97" src="https://github.com/user-attachments/assets/d1eaea35-4402-468a-97fe-e856717cfe43">
 </p> 
