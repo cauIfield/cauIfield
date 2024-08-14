@@ -15,13 +15,14 @@
 &nbsp; &nbsp; sheノtheyノhe &nbsp; 𓆪
 
 <p align="center"><img width="20" height="20" src="https://64.media.tumblr.com/93fcc5f9ce834961539fb2b801c60208/227ca944526be4dc-6b/s75x75_c1/65f22b074868d4f92a76f1709618fb4ede473148.gifv" </p> &nbsp; &nbsp; 16ʸᵒ &nbsp; &nbsp; ıllı &nbsp; &nbsp; ◟ <img width="20" height="20" src= "https://github.com/user-attachments/assets/35fe8c9f-9d86-4581-b343-6daf5998db26"
-"
+
 
 &nbsp; ◝ &nbsp; &nbsp; ୨୧
 
 <p align="center">★⌣⌣  &nbsp; &nbsp; infp &nbsp; &nbsp; 。yellowjackets, LiS & TLOU >>
 
-<p align="center"> <img width="99" height="56" src="https://github.com/user-attachments/assets/c10740eb-b514-4e4f-96a3-79674c99c6a2"
+<p align="center"> <img width="99" height="56" src="https://github.com/user-attachments/assets/afd708b3-59a7-4db7-acf5-73a03ab96e16" >
+
 
 
 ![marquee](images/svg/marquee.svg)
