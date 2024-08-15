@@ -1,7 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=cauIfield&color=yellow)
 
 ©FISHfish art, wip cause im lazy
-add me on rblx ^_^ (lils1989) and discord if i knmow u (scatorccioo)
+
+add me on rblx ^_^ (lils1989) and discord if i knmw u (scatorccioo)
 
 <p align="center">
   <img width="500" height="45" src="https://github.com/user-attachments/assets/796d7241-9412-4aff-b392-6fc3633b3b5f">
