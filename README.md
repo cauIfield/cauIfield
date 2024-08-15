@@ -36,7 +36,7 @@
   <img width="300" height="97" src="https://github.com/user-attachments/assets/d1eaea35-4402-468a-97fe-e856717cfe43">
 </p> 
 
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=cc7ruoqolcp0f2nf5f1txlivi&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=f2f2f2&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=cc7ruoqolcp0f2nf5f1txlivi&redirect=true)
 
 
 
