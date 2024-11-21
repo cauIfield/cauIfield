@@ -26,7 +26,7 @@ add me on rblx ^_^ (lils1989) and discord if i know u (.scatorccio)
 
 &nbsp; ◝ &nbsp; &nbsp; ୨୧
 
-<p align="center">★⌣⌣  &nbsp; &nbsp; infp &nbsp; &nbsp; 。&nbsp; &nbsp; yellowjackets, LiS & TLOU >>
+<p align="center">★⌣⌣  &nbsp; &nbsp; infp &nbsp; &nbsp; 。&nbsp; &nbsp; arcane, yellowjackets, LiS & TLOU >>
 
 <p align="center"> <img width="99" height="56" src="https://github.com/user-attachments/assets/afd708b3-59a7-4db7-acf5-73a03ab96e16" </p> <img width="99" height="56" src="https://github.com/user-attachments/assets/d1d7eecd-57c0-41fb-9183-658f2d0ba0c2" </p> <img width="99" height="56" src="https://github.com/user-attachments/assets/4a0f9782-fcba-40e1-934f-57b6ce58b228"
 
