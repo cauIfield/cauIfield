@@ -4,6 +4,8 @@
   <img width="735" height="415" src="https://github.com/user-attachments/assets/5bd359ef-d229-4923-a906-a08fedd4660e">
 </p>
 
+rarely online rn, promise i'm still alive
+
 
 
 
