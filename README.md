@@ -1,8 +1,4 @@
-
-<p align="center">
-  <img width="620" height="428" src="https://files.catbox.moe/ekmvzv.png">
-</p>
-
+![image](https://github.com/user-attachments/assets/1c8a733a-aa55-4666-b289-3e10584f08b8)
 
 
 
