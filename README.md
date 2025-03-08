@@ -1,6 +1,8 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=cc7ruoqolcp0f2nf5f1txlivi&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-![image](https://github.com/user-attachments/assets/1c8a733a-aa55-4666-b289-3e10584f08b8)
+<p align="center">
+  <img width="1000" height="116" src="https://files.catbox.moe/exntov.jpg">
+</p>
 
 <p align="center">
   <img width="300" height="300" src="https://files.catbox.moe/hfchew.png">
@@ -11,7 +13,9 @@
 </p>
 
 
-![image](https://github.com/user-attachments/assets/08841f76-117f-4a12-b286-a8a95c276956)
+<p align="center">
+  <img width="1000" height="80" src="https://files.catbox.moe/0lw71d.png">
+</p>
 
 
 
