@@ -6,4 +6,8 @@
 
 NOTE;; heads up my links are outdated as hell </3 
 
-im hardly on here but feel free to whisper/sit w me !!!!
+im hardly on here but feel free to whisper/sit w me !!!
+
+i <3 kpdh, arcane, alien stage, yellowjackets, 
+
+life is strange, the last of us, etc >_<
