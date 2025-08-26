@@ -5,4 +5,5 @@
 </p>
 
 NOTE;; heads up my links are outdated as hell </3 
+
 im hardly on here but feel free to whisper/sit w me !!!!
