@@ -12,3 +12,5 @@
 heads up im using straw instead of rentry rn !!
 
 NID WAS HERE!! I TOOK OVER ELLIES PROFILE >o<
+
+ellie has a hate shrine dedicated to me yall... i fear im not sate call 911
