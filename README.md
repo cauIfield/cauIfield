@@ -18,6 +18,6 @@ NID WAS HERE GUYS! I GET FULL ACCESS TO ELLIE'S CODE, SO EXPECT SOME MOTIVATIONA
 ^ consider that a warning as any future speeches will be FAR from motivational - real ellie >_<
 
 <p align="center">
-  <img width="750" height="138" src="https://files.catbox.moe/0o4kvr.png">
+  <img width="750" height="300" src="https://files.catbox.moe/0o4kvr.png">
 </p>
 
