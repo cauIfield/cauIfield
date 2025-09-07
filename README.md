@@ -13,4 +13,4 @@ heads up im using straw instead of rentry rn !!
 
 NID WAS HERE GUYS! I GET FULL ACCESS TO ELLIE'S CODE, SO EXPECT SOME MOTIVATIONAL SPEECHES FROM YOURS TRUELY
 
-^ consider that a warning as any future speeches will be FAR from motivational - real ellie >_<
+^HEY GUYS I LITERALLY HATEEEEEEEEEEEEEE WHEN PONYTIWNERS E CUDDLE LUIKE WTF IS THAT?? GO TOUCH SLME GRASS AND INERACT WITH UR MAMA
