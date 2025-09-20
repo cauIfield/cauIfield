@@ -20,3 +20,5 @@ yeah i figured bro our convo was like "are u lay down rn?" "aahnua f fuiyasbd mm
 gehlp stopSPPP guys ellie is so sweet she said she would have stayed on call with me if i didnt wake up what a sweetheart- nid
 
 yeah and u wouldve just woke up and left me in the middle of the night. cause ur NOT a sweetheart - ellie
+
+I WAS JOKINGGGG IM NOT THAT MEAN. IM THE BIGGEST SWEETHEART OUT THERE I WOULD HAVE STAYED. ROLLING MY MF EYES -NID
