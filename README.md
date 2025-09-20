@@ -16,3 +16,5 @@ never doing c + h with nidohl again
 
 ^
 GUYS THIS WAS A LIE SHE JUST ASKED ME TO DO IT THEN GOT PISSY WHEN I SAT AWAY FROM HER SHE SECRELTY WANTS TO E CUDDLE WITH MY PONY 24/7 -NID
+
+^^ u just fell asleep on call loser - ellie 
