@@ -20,4 +20,5 @@ I AM NOT DRAMATIC NOR STUBBORN. I CAN UNDERSTAND THE ANNOYING BIT BUT WHATEVA FL
 guys ellie gets jealous if i sit next to someone else on ponytown
 
 ^ ur not annoying that was a lie pls dont insult urself its only okay when i do it 
+
 & no thats STUPID i just find it funny to fuel that delusion - e O_o
