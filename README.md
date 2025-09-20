@@ -10,23 +10,3 @@ heads up im using straw instead of rentry rn !!
 <p align="center">
   <img width="320" height="100" src="https://spotify-github-profile.kittinanx.com/api/view?uid=cc7ruoqolcp0f2nf5f1txlivi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color_cover=true&bar_color=53b14f)](https://github.com/kittinan/spotify-github-profile)](https://spotify-github-profile.kittinanx.com/api/view?uid=cc7ruoqolcp0f2nf5f1txlivi&redirect=true)">
 </p>
-
-^^ u just fell asleep on call loser - ellie 
-
-OKAY SO I PUT MY HEAD ON THE PILLOW FOR A SECOND AND I WAS OUT. NOT MY MF FAULT. -NID
-
-yeah i figured bro our convo was like "are u lay down rn?" "aahnua f fuiyasbd mms snmssmsnay pillow" sigh - ellie
-
-gehlp stopSPPP guys ellie is so sweet she said she would have stayed on call with me if i didnt wake up what a sweetheart- nid
-
-yeah and u wouldve just woke up and left me in the middle of the night. cause ur NOT a sweetheart - ellie
-
-I WAS JOKINGGGG IM NOT THAT MEAN. IM THE BIGGEST SWEETHEART OUT THERE I WOULD HAVE STAYED. ROLLING MY MF EYES -NID
-
-i'll wake you up so you can leave and take your contacts out next time grandma - ellie
-
-CANT BELIEVE U MF DIDNT WAKE ME BRO-NID
-
-I WOULDVE IF I KNEW ABOUT THE CONTACTS? i wouldve just like joined muted on my phone and sent u a text telling u to leave whenever u wake up - ELLIE.
-
-YEAH YEAH WHATEVER. ROLLING MY EYES AT YOU. IDK WHO U ARE- NID
