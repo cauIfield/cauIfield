@@ -26,3 +26,5 @@ I WAS JOKINGGGG IM NOT THAT MEAN. IM THE BIGGEST SWEETHEART OUT THERE I WOULD HA
 i'll wake you up so you can leave and take your contacts out next time grandma - ellie
 
 CANT BELIEVE U MF DIDNT WAKE ME BRO-NID
+
+I WOULDVE IF I KNEW ABOUT THE CONTACTS? i wouldve just like joined muted on my phone and sent u a text telling u to leave whenever u wake up - ELLIE.
