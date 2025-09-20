@@ -22,3 +22,5 @@ gehlp stopSPPP guys ellie is so sweet she said she would have stayed on call wit
 yeah and u wouldve just woke up and left me in the middle of the night. cause ur NOT a sweetheart - ellie
 
 I WAS JOKINGGGG IM NOT THAT MEAN. IM THE BIGGEST SWEETHEART OUT THERE I WOULD HAVE STAYED. ROLLING MY MF EYES -NID
+
+i'll wake you up so you can leave and take your contacts out next time grandma - ellie
