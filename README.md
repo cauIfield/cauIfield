@@ -15,3 +15,6 @@ heads up im using straw instead of rentry rn !!
 hey guys nid is like so amazing and swagger?? shes not dramatic at all to the point shes so cool and omg yeah
 
 ^ nid wrote that. she is very dramatic, stubborn & annoying. - REAL ellie
+
+I AM NOT DRAMATIC NOR STUBBORN. I CAN UNDERSTAND THE ANNOYING BIT BUT WHATEVA FLEVEAAAA.... ROLLS MY EYES 
+guys ellie gets jealous if i sit next to someone else on ponytown
