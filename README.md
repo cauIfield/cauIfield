@@ -24,3 +24,5 @@ yeah and u wouldve just woke up and left me in the middle of the night. cause ur
 I WAS JOKINGGGG IM NOT THAT MEAN. IM THE BIGGEST SWEETHEART OUT THERE I WOULD HAVE STAYED. ROLLING MY MF EYES -NID
 
 i'll wake you up so you can leave and take your contacts out next time grandma - ellie
+
+CANT BELIEVE U MF DIDNT WAKE ME BRO-NID
