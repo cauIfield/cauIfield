@@ -21,4 +21,4 @@ GUYS THIS WAS A LIE SHE JUST ASKED ME TO DO IT THEN GOT PISSY WHEN I SAT AWAY FR
 
 OKAY SO I PUT MY HEAD ON THE PILLOW FOR A SECOND AND I WAS OUT. NOT MY MF FAULT. -NID
 
-yeah i figured bro our convo was like "are u lay down rn?" "aahnua f fuiyasbd mms snmssmsnay pillow"
+yeah i figured bro our convo was like "are u lay down rn?" "aahnua f fuiyasbd mms snmssmsnay pillow" sigh - ellie
