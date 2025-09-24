@@ -13,3 +13,5 @@ heads up im using straw instead of rentry rn !!
 
 
 STOP LISTENING TO FAKE PLASTIC TREES NOW. -NID
+
+ITS A GOOD MF SONG???? - ELLIE
