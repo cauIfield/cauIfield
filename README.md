@@ -16,4 +16,4 @@ HEY GUYS THIS IS ELLIE!! I ABSOLUTELY HATE NID SO MUCH WITH A PASSION. SHE IS SO
 
 ^^ nid wrote this but its true anyway so - ellie
 
-how could you say this to me. im never matching with you ever again. 
+how could you say this to me. im never matching with you ever again. -nid
