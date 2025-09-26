@@ -15,3 +15,5 @@ heads up im using straw instead of rentry rn !!
 HEY GUYS THIS IS ELLIE!! I ABSOLUTELY HATE NID SO MUCH WITH A PASSION. SHE IS SO NOT COOL AND NOT SKIBIDO.
 
 ^^ nid wrote this but its true anyway so - ellie
+
+how could you say this to me. im never matching with you ever again. 
