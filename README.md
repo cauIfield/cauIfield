@@ -13,3 +13,5 @@ heads up im using straw instead of rentry rn !!
 
 
 GUYS SHES HOLDING ME HOSTAGE AS I TYPE THIS MESSAGE, PLEASE HELP ME GUYS PLSSSSSS -NID
+
+shes the one that asked me to play btw ^^ - ellie
