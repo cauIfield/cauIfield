@@ -15,5 +15,5 @@ heads up im using straw instead of rentry rn !!
   <img width="600" height="265" src="https://files.catbox.moe/dqx5bg.png">
 </p>
 
-^^ PLS I CANT THIS IS SO CUTE LOOK AT HER ART @nidohl
+^^ PLS I CANT THIS IS SO CUTE LOOK AT HER ART @NIDOHL TAKE MY MONEY TAKE IT 
 
