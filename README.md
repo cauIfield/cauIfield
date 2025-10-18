@@ -16,3 +16,6 @@ heads up im using straw instead of rentry rn !!
 </p>
 
 ^^ LOOK AT HOW PRETTY HER ART IS I NEED HER TO TAKE MY MONEY - ELLIE
+
+^
+NUH UH SHE GETS ART FOR FREE BC SHES MY POOKS GET IN LINE YALL >O< -NID
