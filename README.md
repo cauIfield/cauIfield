@@ -14,8 +14,3 @@ heads up im using straw instead of rentry rn !!
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/dqx5bg.png">
 </p>
-
-^^ LOOK AT HOW PRETTY HER ART IS I NEED HER TO TAKE MY MONEY - ELLIE
-
-^
-NUH UH SHE GETS ART FOR FREE BC SHES MY POOKS GET IN LINE YALL >O< -NID
