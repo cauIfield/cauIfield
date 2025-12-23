@@ -14,3 +14,5 @@ NID WAS HERE NID WAS HEREEE >O< !!
 ^ hi loser 
 
 I LOVE WIFE!! -NID
+
+^ i love wife more - ellie
