@@ -38,3 +38,5 @@ yeah instead of nose bleeds theres gonna be ear bleeds when you pull up with tha
 sigh... i thought you liked me.. guess you hate me instead... SIGHS this is tragic news. -nid
 
 we're literally married. - ellie
+
+WEE AREE, I JUST WANTED TO HEAR U SAY THAT SMILES -NID
