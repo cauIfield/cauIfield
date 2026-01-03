@@ -26,3 +26,5 @@ you're so dramatic please invest in theatre - ellie
 you think broadway will accept it,,, a for being gay and b for having the vocals of an angel sent down from heaven -nid
 
 did said angel fry her vocal chords when she descended from heaven - ellie (im joking) (dont be mad)
+
+WOW. I AM SHOCKED RIGHT NOW?? i could sing like umm umm THE HIGH NOTE THAT MADISON BEER DID but even better and more fashionable... -nid
