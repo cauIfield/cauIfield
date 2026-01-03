@@ -30,3 +30,5 @@ did said angel fry her vocal chords when she descended from heaven - ellie (im j
 WOW. I AM SHOCKED RIGHT NOW?? i could sing like umm umm THE HIGH NOTE THAT MADISON BEER DID but even better and more fashionable... -nid
 
 im envisioning you as that one video of millie bobby brown singing imagine by john lennon - ellie
+
+YOU THINK IF I HIT THE NOTE I'LL BE IN ANY UPCOMING ST SEQUELS -NID
