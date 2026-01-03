@@ -8,35 +8,3 @@
 <p align="center">
   <img width="320" height="100" src="https://spotify-github-profile.kittinanx.com/api/view?uid=cc7ruoqolcp0f2nf5f1txlivi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color_cover=true&bar_color=53b14f)](https://github.com/kittinan/spotify-github-profile)](https://spotify-github-profile.kittinanx.com/api/view?uid=cc7ruoqolcp0f2nf5f1txlivi&redirect=true)">
 </p>
-
-
-
-HIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIII -NID
-
-hi ^_^ - ellie
-
-IHIHHIIHHIHIHIHIHIHIHIHI HI ELLIAEEEE HIHIHIHIHIHIHIHIHIHIHHIHIHI -NID
-
-you're the only mf i know that texts via github readme - ellie
-
-sigh.. fine.... i'll stop then... *swipes hair* its okay. -nid
-
-you're so dramatic please invest in theatre - ellie
-
-you think broadway will accept it,,, a for being gay and b for having the vocals of an angel sent down from heaven -nid
-
-did said angel fry her vocal chords when she descended from heaven - ellie (im joking) (dont be mad)
-
-WOW. I AM SHOCKED RIGHT NOW?? i could sing like umm umm THE HIGH NOTE THAT MADISON BEER DID but even better and more fashionable... -nid
-
-im envisioning you as that one video of millie bobby brown singing imagine by john lennon - ellie
-
-YOU THINK IF I HIT THE NOTE I'LL BE IN ANY UPCOMING ST SEQUELS -NID
-
-yeah instead of nose bleeds theres gonna be ear bleeds when you pull up with that note - ellie 
-
-sigh... i thought you liked me.. guess you hate me instead... SIGHS this is tragic news. -nid
-
-we're literally married. - ellie
-
-WEE AREE, I JUST WANTED TO HEAR U SAY THAT SMILES -NID
