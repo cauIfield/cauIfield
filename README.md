@@ -34,3 +34,5 @@ im envisioning you as that one video of millie bobby brown singing imagine by jo
 YOU THINK IF I HIT THE NOTE I'LL BE IN ANY UPCOMING ST SEQUELS -NID
 
 yeah instead of nose bleeds theres gonna be ear bleeds when you pull up with that note - ellie 
+
+sigh... i thought you liked me.. guess you hate me instead... SIGHS this is tragic news. -nid
