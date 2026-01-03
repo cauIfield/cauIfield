@@ -18,3 +18,5 @@ hi ^_^ - ellie
 IHIHHIIHHIHIHIHIHIHIHIHI HI ELLIAEEEE HIHIHIHIHIHIHIHIHIHIHHIHIHI -NID
 
 you're the only mf i know that texts via github readme - ellie
+
+sigh.. fine.... i'll stop then... *swipes hair* its okay. -nid
