@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Cardo&duration=3000&pause=1000&color=A23612&multiline=true&width=435&height=55&lines=%2C%2C+if+your+dream+is+to+save+the+common+people%2C;then+my+dream+is+only+you+.+%22)](https://git.io/typing-svg)
+&emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; [![Typing SVG](https://readme-typing-svg.demolab.com?font=Cardo&duration=3000&pause=1000&color=A23612&multiline=true&width=435&height=55&lines=%2C%2C+if+your+dream+is+to+save+the+common+people%2C;then+my+dream+is+only+you+.+%22)](https://git.io/typing-svg)
 
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/useoaj.png">
