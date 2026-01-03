@@ -22,3 +22,5 @@ you're the only mf i know that texts via github readme - ellie
 sigh.. fine.... i'll stop then... *swipes hair* its okay. -nid
 
 you're so dramatic please invest in theatre - ellie
+
+you think broadway will accept it,,, a for being gay and b for having the vocals of an angel sent down from heaven -nid
