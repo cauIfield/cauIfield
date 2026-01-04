@@ -26,3 +26,5 @@ i would and i'd wait 800 years but okay sigh - ellie
 would you also tie a red string on my finger to match your red string... meaning we are bonded. -nid
 
 i think a wedding ring would look a lot better but string works too - ellie >_<
+
+IM STILL WAITING FOR THAT RING BTW. - NID.
