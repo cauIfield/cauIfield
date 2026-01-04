@@ -18,3 +18,5 @@ GEGE LETS GET MARRIED- NID
 what do you mean..... -nid
 
 ^^ not you forgetting the references to your own fandom imcrying - ellie
+
+OKAY SO GIVE ME A BREAK A LOT HAPPENS OKAY.. bet you wouldn't make 10000 statues of me and light 3000 candles OR FIGHT 33 GODS FOR MY HONOR -nid.
