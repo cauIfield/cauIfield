@@ -11,28 +11,6 @@
   <img width="320" height="100" src="https://spotify-github-profile.kittinanx.com/api/view?uid=cc7ruoqolcp0f2nf5f1txlivi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color_cover=true&bar_color=53b14f)](https://github.com/kittinan/spotify-github-profile)](https://spotify-github-profile.kittinanx.com/api/view?uid=cc7ruoqolcp0f2nf5f1txlivi&redirect=true)">
 </p>
 
-GEGE LETS GET MARRIED- NID
-
-^ JUST KIDDING - ellie
-
-what do you mean..... -nid
-
-^^ not you forgetting the references to your own fandom imcrying - ellie
-
-OKAY SO GIVE ME A BREAK A LOT HAPPENS OKAY.. bet you wouldn't make 10000 statues of me and light 3000 candles OR FIGHT 33 GODS FOR MY HONOR -nid.
-
-i would and i'd wait 800 years but okay sigh - ellie
-
-would you also tie a red string on my finger to match your red string... meaning we are bonded. -nid
-
-i think a wedding ring would look a lot better but string works too - ellie >_<
-
-IM STILL WAITING FOR THAT RING BTW. - NID.
-
-OK WELL MATCHING BRACELETS YOU MADE IS BASICALLY THE SAME THING IT COUNTS. - ELLIE.
-
-SIGHH YOU HATE ME YOUUU HATE ME ITS FINE. YOU JUST DONT WANT TO GRT A RING TO MAKE IT OFFICIAL SIGHHH... -NID
-
-i spent my birthday money on robux dont trust me with buying you a ring. or any financial choices for that matter - ellie
-
-ive soent all my robyx on bee swarm simulator i dont tbink you should teust me with money either... -nid...
+<p align="center">
+  <img width="600" height="265" src="https://files.catbox.moe/xp8muk.png">
+</p>
