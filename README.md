@@ -28,3 +28,5 @@ would you also tie a red string on my finger to match your red string... meaning
 i think a wedding ring would look a lot better but string works too - ellie >_<
 
 IM STILL WAITING FOR THAT RING BTW. - NID.
+
+OK WELL MATCHING BRACELETS YOU MADE IS BASICALLY THE SAME THING IT COUNTS. - ELLIE.
