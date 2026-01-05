@@ -32,3 +32,5 @@ IM STILL WAITING FOR THAT RING BTW. - NID.
 OK WELL MATCHING BRACELETS YOU MADE IS BASICALLY THE SAME THING IT COUNTS. - ELLIE.
 
 SIGHH YOU HATE ME YOUUU HATE ME ITS FINE. YOU JUST DONT WANT TO GRT A RING TO MAKE IT OFFICIAL SIGHHH... -NID
+
+i spent my birthday money on robux dont trust me with buying you a ring. or any financial choices for that matter - ellie
