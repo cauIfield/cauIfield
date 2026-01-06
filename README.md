@@ -14,3 +14,5 @@
 <p align="center">
   <img width="600" height="245" src="https://files.catbox.moe/xp8muk.png">
 </p>
+
+ELLIE IF UR READING THIS I LOVE YOU MORE -NID
