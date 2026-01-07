@@ -26,3 +26,5 @@ NO YOU DONTTTT ITS OKAY TO BE WRONG!! - ELLIE
 NO BUT I DOOO ITS TRUEEEE SOFTIE insert tiktok emoji looking thing -NID
 
 who tf are you calling soft do you need me to paste whats in your card as a reality check - ellie
+
+ont make me do the same with you now... -NID
