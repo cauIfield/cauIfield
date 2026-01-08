@@ -14,17 +14,3 @@
 <p align="center">
   <img width="600" height="245" src="https://files.catbox.moe/xp8muk.png">
 </p>
-
-ELLIE IF UR READING THIS I LOVE YOU MORE -NID
-
-^ NO MY LETTER GOT TO YOU FIRST SO I LOVE YOU MORE - ELLIE
-
-DONTT CAREEE I STILL WINNNN IM A WINNER -NID
-
-NO YOU DONTTTT ITS OKAY TO BE WRONG!! - ELLIE
-
-NO BUT I DOOO ITS TRUEEEE SOFTIE insert tiktok emoji looking thing -NID
-
-who tf are you calling soft do you need me to paste whats in your card as a reality check - ellie
-
-ont make me do the same with you now... -NID
