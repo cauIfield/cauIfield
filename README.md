@@ -14,3 +14,5 @@
 UMMM I LIKE YOUR BOW!! IT GOES GREAT WITH YOUR... PAJAMAS!! -NID
 
 right (girlie SEARCHED for yang you are NOT nonchalant) - ellie
+
+thats my attempt at flirting wirh you -nid
