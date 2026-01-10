@@ -18,3 +18,5 @@ right (girlie SEARCHED for yang you are NOT nonchalant) - ellie
 thats my attempt at flirting wirh you -nid
 
 yangs flirting is very you coded. - ellie
+
+is that a compliment... -nid
