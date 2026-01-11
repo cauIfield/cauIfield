@@ -22,3 +22,5 @@ yangs flirting is very you coded. - ellie
 is that a compliment... -nid
 
 .. take it however you wanna take it i suppose ^^" - ellie
+
+UGH WHATEVER ITS FINE WHATVEER -NID
