@@ -9,18 +9,3 @@
 <p align="center">
   <img width="320" height="70" src="https://spotify-github-profile.kittinanx.com/api/view?uid=cc7ruoqolcp0f2nf5f1txlivi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color_cover=true&bar_color=53b14f)](https://github.com/kittinan/spotify-github-profile)](https://spotify-github-profile.kittinanx.com/api/view?uid=cc7ruoqolcp0f2nf5f1txlivi&redirect=true)">
 </p>
-
-
-UMMM I LIKE YOUR BOW!! IT GOES GREAT WITH YOUR... PAJAMAS!! -NID
-
-right (girlie SEARCHED for yang you are NOT nonchalant) - ellie
-
-thats my attempt at flirting wirh you -nid
-
-yangs flirting is very you coded. - ellie
-
-is that a compliment... -nid
-
-.. take it however you wanna take it i suppose ^^" - ellie
-
-UGH WHATEVER ITS FINE WHATVEER -NID
